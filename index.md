@@ -6,4 +6,6 @@ asdasdasdadasdasd
 
 Ola obrigado por estar aqui presente
 Venha comigo.
-asdnaksdaskdasnbdkjsa : vlw
+asdnaksdaskdasnbdkjsa :
+
+Outros maneira de aprender seja feliz obrigado
