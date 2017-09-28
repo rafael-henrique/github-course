@@ -9,5 +9,3 @@ Venha comigo.
 asdnaksdaskdasnbdkjsa :
 
 Outros maneira de aprender seja feliz obrigado
-
-BOA TARDE A TODOS ""!!!: =)
